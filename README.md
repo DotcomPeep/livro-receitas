@@ -1,5 +1,7 @@
-	Livro de receitas
+	Livro de receitas 😋
 
-  Olá! Bem vindo ao livro de receitas
+  Olá! Bem vindo ao meu livro de receitas
 
-  Parmegiana de frango
+  Parmegiana de frango 🐔
+
+  Lasanha
